@@ -2,4 +2,4 @@
 ‎ <p align="center">[sign ata](https://fragariaknight.atabook.org/)**·** [carrd](https://fragariaknight.carrd.co/) **·** [listography](https://listography.com/vilkisser) **·** [rentry](https://rentry.co/blondeshortcake)
 ‎ <p align="center"> angels: https://8bitch.carrd.co
 ## <p align="center"><a href='https://postimg.cc/5Hmjft9T' target='_blank'><img src='https://i.postimg.cc/5Hmjft9T/GOQq-Hb-Hbw-AEq-Wy-G.jpg' border='0' alt='GOQq-Hb-Hbw-AEq-Wy-G'/></a>
-<p align="center"> art credit: @saostiramfan26
+<p align="center"> art credit: @saostiramfan26 | please stop involving me in drama, i'm not part of any nor harassment in general :thinking:
